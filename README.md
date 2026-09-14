@@ -1,0 +1,1 @@
+# Monitor-Edid-Profile-2026
